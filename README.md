@@ -2,7 +2,7 @@
 
 #### 🪐 Loading for web developer...
 
-#### 🪐 `Will you come with me? send email to ikosdu60@gmail.com : please share your thinking about me `
+#### 🪐 `Will you come with me? send email to ikosdu60@gmail.com : Please share your thinking about me `
 
 #### 🪐 I N S E R T / Y O U R / A T T E N T I O N ... 🟡
 
